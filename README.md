@@ -9,7 +9,8 @@
 
 - 📫 How to reach me **ettharrhassan@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/12FaGzaOtqEopXP40g1QF3tyj8OJLv5ft/view](https://drive.google.com/file/d/12FaGzaOtqEopXP40g1QF3tyj8OJLv5ft/view)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1717S8XSP3qtxGTde_NsZ3jTR7kT8b-78/view?usp=sharing](https://drive.google.com/file/d/1717S8XSP3qtxGTde_NsZ3jTR7kT8b-78/view?usp=sharing)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
